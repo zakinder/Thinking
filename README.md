@@ -1,0 +1,2 @@
+# Thinking
+SinceBeginOfTime Thinking WasIsWill ForOthersBothUnseenAndHumans
